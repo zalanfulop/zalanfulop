@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zalanfulop
+- 👋 Hi, I’m @zerge_zazi on Instagram. Look at that energy!
 - 👀 I’m interested in Data Engineering and Yoga.
 - 🌱 I’m currently learning how to do a job in IT. And learning how to be a yoga instructor.
 - 💞️ I’m looking to collaborate on projects which help people.
